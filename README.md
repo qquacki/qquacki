@@ -8,7 +8,6 @@ dni: soo i wouldnt say this but i think i have to. soo dni: over 20-21 (yeahh re
 
 <img width="574" height="568" alt="Quackity _3" src="https://github.com/user-attachments/assets/0aedee08-988b-4ffc-b5e0-a897f8215561" />
 <img width="735" height="645" alt="descarga (1)" src="https://github.com/user-attachments/assets/6507e18d-02dd-451b-b051-e90a49e09a38" />
-<img width="421" height="404" alt="#QSMP 🇲🇽" src="https://github.com/user-attachments/assets/e6cedbde-1b2b-4417-962f-e9c751c3079d" />
 <img width="735" height="643" alt="#roier #qsmp #qsmp2 #thenorth #minecraft" src="https://github.com/user-attachments/assets/f8c53ff0-4971-423e-9fca-fa9eb856bdc5" />
 
 
