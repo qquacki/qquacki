@@ -1,4 +1,16 @@
-## Hi there 👋
+hii, hello, oii, witam. so im writing this so u people can know me more :3
+
+i like: qsmp,marvel,hunterxhunter,AoT,dc,sonic,backrooms,south park,fnaf,hamilton,heathers,epic the musical,IT,vocaloid,the legend of zelda,TOH anddd i forgot some others fandoms but u can ask me.
+
+i dont like: honestly i dont know what to say here cuz i like everything and if u say to me to watch something i def do it like yeahh i wanna know more cool movies/series u know :) 
+
+dni: soo i wouldnt say this but i think i have to. soo dni: over 20-21 (yeahh relax im just 17 almost 18 :sob:), homophobic people, racist, problematic people, andd im not a very much of a political person like u can tell me something that happen in a country and i def didnt know what r u talking about(its not like i hate it im just not in that) also im not in x(twitter) cuz that sucks and idk, anywaysss thats all :) 
+
+<img width="574" height="568" alt="Quackity _3" src="https://github.com/user-attachments/assets/0aedee08-988b-4ffc-b5e0-a897f8215561" />
+<img width="735" height="645" alt="descarga (1)" src="https://github.com/user-attachments/assets/6507e18d-02dd-451b-b051-e90a49e09a38" />
+<img width="421" height="404" alt="#QSMP 🇲🇽" src="https://github.com/user-attachments/assets/e6cedbde-1b2b-4417-962f-e9c751c3079d" />
+<img width="735" height="643" alt="#roier #qsmp #qsmp2 #thenorth #minecraft" src="https://github.com/user-attachments/assets/f8c53ff0-4971-423e-9fca-fa9eb856bdc5" />
+
 
 <!--
 **qquacki/qquacki** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
