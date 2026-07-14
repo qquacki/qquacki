@@ -4,7 +4,7 @@ i like: qsmp,marvel,hunterxhunter,AoT,dc,sonic,backrooms,south park,fnaf,hamilto
 
 i dont like: honestly i dont know what to say here cuz i like everything and if u say to me to watch something i def do it like yeahh i wanna know more cool movies/series u know :) 
 
-dni: soo i wouldnt say this but i think i have to. soo dni: over 20-21 (yeahh relax im just 17 almost 18 :sob:), homophobic people, racist, problematic people, andd im not a very much of a political person like u can tell me something that happen in a country and i def didnt know what r u talking about(its not like i hate it im just not in that) also im not in x(twitter) cuz that sucks and idk, alsoo I DO NOT SUPPORT problematic creators. :) 
+dni: soo i wouldnt say this but i think i have to. soo dni: over 20-21 (yeahh relax im just 17 almost 18 :sob:), homophobic people, racist, problematic people, andd im not a very much of a political person like u can tell me something that happen in a country and i def didnt know what r u talking about(its not like i hate it im just not into that) alsoo I DO NOT SUPPORT problematic creators. :) 
 
 <img width="435" height="333" alt="descarga (1)" src="https://github.com/user-attachments/assets/6507e18d-02dd-451b-b051-e90a49e09a38" />
 <img width="435" height="333" alt="#roier #qsmp #qsmp2 #thenorth #minecraft" src="https://github.com/user-attachments/assets/f8c53ff0-4971-423e-9fca-fa9eb856bdc5" />
