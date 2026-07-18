@@ -1,6 +1,6 @@
 hii, hello, oii, witam. so im writing this so u people can know me more :3
 
-i like: qsmp,marvel,hunterxhunter,AoT,dc,sonic,backrooms,south park,fnaf,hamilton,heathers,epic the musical,IT,vocaloid,the legend of zelda,TOH,alien stage,tadc,percy jackson and the olympians,madoka magicaa anddd i forgot some others fandoms but u can ask me.
+i like: qsmp,marvel,hunterxhunter,AoT,dc,sonic,backrooms,south park,fnaf,hamilton,heathers,epic the musical,IT,vocaloid,the legend of zelda,TOH,alien stage,tadc,percy jackson and the olympians,madoka magicaa,deltarune(undertale) anddd i forgot some others fandoms but u can ask me.
 
 i dont like: honestly i dont know what to say here cuz i like everything and if u say to me to watch something i def do it like yeahh i wanna know more cool movies/series u know :) 
 
